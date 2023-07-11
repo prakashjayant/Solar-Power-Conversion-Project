@@ -1,1 +1,0 @@
-# Solar-Power-Conversion-Project
